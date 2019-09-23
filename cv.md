@@ -358,7 +358,7 @@ Software engineering
 ----
 I started learning English at school, but not use it at all(unfortunately) Also at university for 2 year i learned english and my proninsiation gets better. 
 
-Now my English level is Pre Intermediate.
+_Now my English level is Pre Intermediate._
 
 ----
 
